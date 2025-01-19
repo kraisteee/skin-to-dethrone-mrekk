@@ -1,4 +1,4 @@
-# [skin-to-dethrone-mrekk v3](https://github.com/kraisteee/skin-to-dethrone-mrekk/raw/refs/heads/main/skin-to-dethrone-mrekk%20v3.osk)
+# [skin-to-dethrone-mrekk v3](https://github.com/kraisteee/skin-to-dethrone-mrekk/raw/refs/heads/main/skin-to-dethrone-mrekk%20v3.osk) [(Preview of skin)](https://ordr.issou.best/watch/OjtZlM)
 ![screenshot023](https://github.com/user-attachments/assets/5b236035-cf38-4351-89ff-d9551c38fd30)
 
 <details>
